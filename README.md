@@ -1,0 +1,2 @@
+Banana pudding is a classic American dessert, mostly associated with the Southern US cuisine. It consists of layers of creamy vanilla custard, vanilla wafer cookies, and slices of bananas. Sometimes it is topped with meringue and baked or else it is simply refrigerated and served. This version of banana pudding is like an American version of the classic Italian tiramisu minus the alcohol and coffee. ;)
+This recipe contains the steps and ingredients to make Banana Pudding Parafait. Hope you enjoy it!
